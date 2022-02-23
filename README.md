@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @16arcdm
+- 👀 I’m interested in Figures and Statistics
+- 🌱 I’m currently learning Banking and Finance International
+- 📫 How to reach me : c.condemine@tbs-education.org
